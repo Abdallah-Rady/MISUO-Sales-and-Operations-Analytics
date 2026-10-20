@@ -52,4 +52,4 @@ The biggest challenge and primary achievement of this project was overcoming sev
 ---
 
 ## 📬 Contact & Connect
-* **LinkedIn:** [Add Your LinkedIn Profile Link Here]
+* **LinkedIn:** linkedin.com/in/abdallah-rady-747755436‏
